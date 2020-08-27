@@ -10,6 +10,6 @@ I currently have no public projects mainly because I am new to the coding world.
 
 ### contact 
 
-If you wish to make a request, please add me (ThatFlick#1449) on discord so we can discuss it in DM'S.
+If you wish to make a request, please add me (ThatFlick#1449) on discord so we can discuss this in DM'S.
 
 
