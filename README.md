@@ -9,6 +9,6 @@ I specialize in making discord bots usually free of charge if they are simple, y
 I currently have no public projects 
 # contact 
 
-If you wish to make a request, please add me (ThatFlick#1449) on discord so we can discuss this in DM'S.
+If you wish to make a request, please add me (ThatFlick#1186) on discord so we can discuss this in DM'S.
 
 
